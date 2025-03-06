@@ -1,4 +1,4 @@
-![Uploading banner.png…]()
+![banner](https://github.com/user-attachments/assets/ccbccf5b-cf47-41e9-acb4-22ac02354212)
 
 # Independent Society of Knowledge > Development  
 
